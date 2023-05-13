@@ -1,5 +1,5 @@
 # ccp-company-share-alert
-As the world becomes increasingly interconnected, it is important to be aware of who holds power and influence over the technology we use every day. This is especially true when it comes to the internet, which has become a vital part of our daily lives. Unfortunately, some of the most popular websites and platforms are owned or partially owned by the Chinese Communist Party (CCP).
+As the world becomes increasingly interconnected, it is important to be aware of who holds power and influence over the technology we use every day. This is especially true when it comes to the internet, which has become a vital part of our daily lives. Unfortunately, some of the most popular websites and platforms are owned or partially owned by organisations and companys which are almost completly controlled by the the Chinese Communist Party (CCP).
 
 The CCP's track record on human rights, religious freedom, and ideological dogmatism are well documented. The party's extreme control over the lives of its citizens and its leader Xi Jinping's consolidation of power are also causes for concern. In addition, the CCP has pursued a more assertive foreign policy strategy, leading to increased tensions with the United States and its allies.
 
